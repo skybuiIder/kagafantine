@@ -7,7 +7,7 @@
 ⠀⠀⠀⠀⠀⠀- Bryce, Xavier, medkit, bm/builderman
 
 
->> SIGN MY [ATABOOK](https://kagafantine.atabook.org/) & COLOR MY [TREE](https://colormytree.me/2024/01JE1EJMTXYQNQTMBWYEQV908H)
+>> SIGN MY [ATABOOK](https://kagafantine.atabook.org/)
 
 for more info abt me, check out my [linktree](https://linktr.ee/medkit39), or for something quicker, my [siderentry](https://rentry.co/buiIderman)
 
