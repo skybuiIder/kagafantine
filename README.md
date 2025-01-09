@@ -7,7 +7,7 @@
 ⠀⠀⠀⠀⠀⠀- Bryce, Xavier, medkit, bm/builderman
 
 
->> SIGN MY [ATABOOK](https://poweringimagination.atabook.org/)
+>> SIGN MY [ATABOOK](https://poweringimagination.atabook.org/) also u should totally draw sth on my [strawpage](https://poweringimagination.straw.page/)
 
 for more info abt me, check out my [linktree](https://linktr.ee/medkit39), or for something quicker, my [siderentry](https://rentry.co/buiIderman)
 
