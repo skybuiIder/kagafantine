@@ -6,12 +6,8 @@
 
 ⠀⠀⠀⠀⠀⠀- Bryce, Xavier, medkit, bm/builderman
 
-- ⠀⠀⠀some random info:
 
-⠀⠀⠀⠀⠀⠀- i like to join whiteboards, i go by "bm" in whiteboards, please send me your whiteboards :)
-⠀⠀⠀⠀⠀⠀- yeehawwwwwwwwww
-
->> SIGN MY [ATABOOK](https://poweringimagination.atabook.org/) also u should totally draw sth on my [strawpage](https://powering-imagination.straw.page/)
+>> SIGN MY [ATABOOK](https://poweringimagination.atabook.org/) 
 
 for more info abt me, check out my [linktree](https://linktr.ee/medkit39), or for something quicker, my [siderentry](https://rentry.co/buiIderman)
 
