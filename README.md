@@ -1,14 +1,11 @@
-> ﹒﹒ WELCOME TO MY PROFILE!!!!
-> 
- :: self-taught artist, soon-becoming adult, mostly off-tab on pt, whisp2int
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/e6727482-7077-44b8-ad81-8792d6261a57">
+  
+ **BRYCE** ⠀! ⠀ BM
+ 
+  ⠀he/him ⠀  they/them
 
-- ⠀⠀⠀names I mostly use ::
+<img src="https://github.com/user-attachments/assets/afa01061-cf08-4d8f-b591-f299b9acdcfd">
 
-⠀⠀⠀⠀⠀⠀- Bryce, Xavier, medkit, bm/builderman
-
-
->> SIGN MY [ATABOOK](https://poweringimagination.atabook.org/) 
-
-for more info abt me, check out my [linktree](https://linktr.ee/medkit39), or for something quicker, my [siderentry](https://rentry.co/buiIderman)
-
-![Untitled277_20241207124747](https://github.com/user-attachments/assets/2b60c3b8-753d-42d4-82de-7455825aabd8)
+  [atabook](https://poweringimagination.atabook.org/)
+</div>
